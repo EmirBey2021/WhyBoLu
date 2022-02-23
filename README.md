@@ -1,3 +1,3 @@
 # WhyBoLu Altyapısı
 
-# Kullanın Lan
+# Kullanmayanın Ağzına Fare Girsin
